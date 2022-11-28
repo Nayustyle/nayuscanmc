@@ -1,6 +1,6 @@
 ### NAYUSCANMC 🍣
 
-![](https://imgur.com/qvaSFxS)
+![](https://i.imgur.com/pa9ckAi.png)
 
 ## COMO EJECUTAR 🥨
 
